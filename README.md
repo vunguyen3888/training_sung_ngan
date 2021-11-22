@@ -1,1 +1,1 @@
-Training Sung ngan
+Training Sung ngan để trong quần
